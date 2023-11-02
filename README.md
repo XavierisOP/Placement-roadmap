@@ -32,11 +32,6 @@ Let me know,if you wish to add anything else to this content.
 
  ***If you like the content and wish to support/sponsor it*** :heart:: 
  
- <a href="https://www.buymeacoffee.com/anushka23g" target="_blank"><img src="https://www.buymeacoffee.com/assets/img/custom_images/orange_img.png" alt="Buy Me A Coffee" style="height: 41px !important;width: 174px !important;box-shadow: 0px 3px 2px 0px rgba(190, 190, 190, 0.5) !important;-webkit-box-shadow: 0px 3px 2px 0px rgba(190, 190, 190, 0.5) !important;" ></a><br> or send me an email at anushkagupta20128@gmail.com
-
-
-
-
 # 🏆 What do I need to prepare for the interviews?
 
 To get your dream company, you should be good in the following while facing an interview:
